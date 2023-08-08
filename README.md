@@ -4,7 +4,7 @@
 Are you ready for an exhilarating journey of innovation and success? Join me in a vibrant collaboration adventure that promises to be both impactful and rewarding.
 
 ## Who Am I?
-I'm Muhammad Faris Hakim also knowna s AHF, an enthusiastic [Your Role/Expertise] with a strong security background. My impressive achievements in Uni Database Exploitation..
+I'm Muhammad Faris Hakim also knowna s AHF, an enthusiastic in security either analog or digital with a strong security background. My impressive achievements in Uni Database Exploitation..
 
 ## Why Collaborate?
 Collaboration is our rocket fuel for progress. By synergizing our unique strengths and skills, we'll achieve feats beyond the realm of the ordinary. Together, we'll tap into a treasure trove of knowledge, experience, and creativity to conquer challenges and seize opportunities.
