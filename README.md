@@ -16,7 +16,7 @@ Collaboration is our rocket fuel for progress. By synergizing our unique strengt
 - **Igniting Innovation:** Collaboration sparks an explosion of fresh ideas and boundary-pushing creativity.
 
 ## How Can You Get Involved?
-This collaboration invites all—whether you're a [Relevant Skills] maestro, a visionary artist, or a positive impact champion:
+This collaboration invites all—whether you're a  maestro, a visionary artist, or a positive impact champion:
 - **Ideas Unleashed:** Let's conjure up game-changing concepts that steer our project's course.
 - **Skills Fused:** Your unique talents will slice through challenges with a fresh edge.
 - **Execute with Excellence:** For the doers among us, your hands-on prowess will bring concepts to vibrant life.
